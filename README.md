@@ -1,1 +1,0 @@
-just my photos lol. 
